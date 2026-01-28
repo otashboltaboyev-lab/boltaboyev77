@@ -1,2 +1,2 @@
-# boltaboyev77
+# abduganiyev
 boltaboyev
